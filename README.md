@@ -1,4 +1,4 @@
-![vae](https://github.com/user-attachments/assets/4a2dc30a-7585-46a0-a1f4-5b01885434dc)### Boas vindas ao meu perfil ❤
+### Boas vindas ao meu perfil ❤
 
  Meu nome é *Renata*
 
